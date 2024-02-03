@@ -2,7 +2,7 @@
 
 This is developer team of CREEP's survival server!
 
-[📕 Learn More](https://www.creepertown.cf)
+[🙋‍♂️🙋‍♀️ Join us](csdwz.bgci.xyz/JoinDevTeam)
 
 -----
 ## Members
