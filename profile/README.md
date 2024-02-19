@@ -2,7 +2,7 @@
 
 This is developer team of CREEP's survival server!
 
-[🙋‍♂️🙋‍♀️ Join us](http://csdwz.bgci.xyz/JoinDevTeam)
+[🙋‍♂️🙋‍♀️ Join us](http://cs.goal8.cn/JoinDevTeam)
 
 -----
 ## Members
